@@ -1,2 +1,2 @@
 Harriet Watson
-Experimental particle physics PhD student @ University of Glasgow
+Experimental particle physics postdoc @ University of Edinburgh
